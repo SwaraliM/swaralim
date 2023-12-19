@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mahimkarswarali@gmail.com**
 
-- ⚡ Fun fact **I love music and I like to sing and play the guitar**
+- ⚡ Fun fact **I love music and I like to sing and play the guitar!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
